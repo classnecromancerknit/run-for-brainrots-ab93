@@ -1,4 +1,4 @@
-#  
+#  hidden run for brainrots Scripts is the best run for brainrots Script, featuring anti-ban and auto-farm. Safe and powerful for all your needs.
 
 
 
